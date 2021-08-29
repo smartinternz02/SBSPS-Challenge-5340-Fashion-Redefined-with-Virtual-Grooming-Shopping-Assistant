@@ -1,2 +1,2 @@
-Check out the google drive link:
-Check out the short demonstration video link:
+Check out the google drive and short demonstration video link attached :
+
